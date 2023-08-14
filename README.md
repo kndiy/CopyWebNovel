@@ -1,0 +1,2 @@
+# CopyBoxNovel
+ ForPrivateReading
